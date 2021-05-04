@@ -1,1 +1,1 @@
-# rsschool-cv
+https://maks3737371.github.io/rsschool-cv/cv
